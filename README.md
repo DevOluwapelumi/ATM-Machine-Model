@@ -31,4 +31,4 @@ Customer Support Integration: Have questions or face any issues while using the 
 
 Receipt Options: Customize your transaction experience by choosing to receive digital or printed receipts, helping you stay organized and informed about your financial activities.
 
-Experience the revolution in banking technology with the Advanced ATM Machine. Enjoy the freedom to manage your finances on your terms, whether you're a busy professional, a student, or anyone in need of convenient and secure banking services. Join the countless individuals who rely on our ATM machines for their financial needs. Elevate your banking experience today.
+Experience the revolution in banking technology with the Advanced ATM Machine. Enjoy the freedom to manage your finances on your terms, whether you're a busy professional, a student, or anyone in need of convenient and secure banking services. Join the countless individuals who rely on our ATMs for their financial needs. Elevate your banking experience today.
