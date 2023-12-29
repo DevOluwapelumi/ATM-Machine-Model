@@ -35,7 +35,8 @@ Discover the future of effortless transactions through our cutting-edge ATM Mach
   Experience the revolution in banking technology with the Advanced ATM Machine. Enjoy the freedom to manage your finances on your terms, whether you're a busy professional, a student, or anyone in need of convenient and secure banking services. Join the countless individuals who rely on our ATMs for their financial needs. Elevate your banking experience today.
 
 ##  Promoting the Advanced ATM Machine.
-  Have you heard about the advanced ATM? It's the latest technology in banking that is revolutionizing the way we withdraw and deposit cash. With its sleek design and user-friendly interface, you can easily access your account and complete transactions in no time. Plus, with advanced security features, you can feel confident that your information is safe and secure. Say goodbye to long lines and waiting times at the bank, and hello to the future of banking with the advanced ATM.
+###  Have you heard about the advanced ATM?
+  It's the latest technology in banking that is revolutionizing the way we withdraw and deposit cash. With its sleek design and user-friendly interface, you can easily access your account and complete transactions in no time. Plus, with advanced security features, you can feel confident that your information is safe and secure. Say goodbye to long lines and waiting times at the bank, and hello to the future of banking with the advanced ATM.
 
 #  Are you familiar with cutting-edge ATMs? 
   It's the most up-to-date technology in banking that is transforming the way we withdraw and deposit funds. With its modern design and easy-to-use interface, you can effortlessly access your account and finalize transactions quickly. Additionally, with advanced security measures in place, you can confidently trust that your information is protected and secure. Bid farewell to lengthy queues and wait times at the bank, and welcome the future of 
